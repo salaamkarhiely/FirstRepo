@@ -1,1 +1,2 @@
-ÊÏÑíÈ Úáì ÇáÜ githup
+ï¿½ï¿½ï¿½ï¿½ï¿½ ï¿½ï¿½ï¿½ ï¿½ï¿½ï¿½ githup
+in English: This istraining on github
